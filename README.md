@@ -9,7 +9,9 @@
   → ʰᵉ/ʰⁱᵐ <img src="https://64.media.tumblr.com/c88cabe555554a2d1c14c6a1e05aae76/6a9108d1542316df-97/s400x600/7eadb5dd2e96cc2ac5582416a033ed709f797ecf.gifv" width="10" height="15">
 ♰ 🇮​🇳​🇫​🇵​-🇹​  𓏵  
 ♡💍ᴍɪᴋᴀ
-  
+ 
+  c+h always allowed
+ 
  ⤿ 🇪​🇳​🇬​ + 🇨​🇷​🇪​🇴​🇱​🇪​ [🇹🇹]
  
 ![image](https://github.com/user-attachments/assets/3b66ace2-97c2-43a9-935e-c420acc25ae8)
