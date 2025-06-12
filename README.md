@@ -1,5 +1,6 @@
-<img src="https://media.discordapp.net/attachments/1330626638530220085/1377658895039725588/HeartPlanet.gif?ex=6839c454&is=683872d4&hm=1156d0695eb144c73e6ac9012500cc9cdde5fb77f3a3b663839984cf70617ae0&=" alt="Heart Planet" width="16" height="16" />
+ <img src="https://media.discordapp.net/attachments/1330626638530220085/1377658895039725588/HeartPlanet.gif?ex=6839c454&is=683872d4&hm=1156d0695eb144c73e6ac9012500cc9cdde5fb77f3a3b663839984cf70617ae0&=" alt="Heart Planet" width="16" height="16" />
  . .❝ ℑ𝔣 ℑ 𝔪𝔲𝔰𝔱 𝔩𝔦𝔳𝔢 𝔦𝔫 𝔰𝔦𝔩𝔢𝔫𝔠𝔢, 𝔱𝔥𝔢𝔫 𝔩𝔢𝔱 𝔢𝔳𝔢𝔯𝔶 𝔰𝔦𝔩𝔢𝔫𝔱 𝔪𝔬𝔪𝔢𝔫𝔱 𝔟𝔢 𝔣𝔦𝔩𝔩𝔢𝔡 𝔴𝔦𝔱𝔥 𝔶𝔬𝔲... ❞
+
 
 ..⟡ ![Cool Hawks GIF](https://64.media.tumblr.com/ababd2455ac013aed9804e03ea4608bf/f64a225bd3bfe041-dd/s640x960/a9d41e739ad65d85493800aa6fb7f7672d89afd5.gif) ⟡..
 
