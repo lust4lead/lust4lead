@@ -10,9 +10,7 @@
 
 <p align="center"> 𝖕𝔞𝔫𝖘𝔢𝔵𝔲𝔞𝖑 𓏵 ɪɴꜰᴘ-ᴛ <img src="https://media.discordapp.net/attachments/1330626638530220085/1377661941010534400/purple.gif?ex=6839c72a&is=683875aa&hm=c00c9218c05acbd36c963e27a0b1191903d291550db298bd3b5a7e0afa779247&=" alt="Purple GIF" width="16" height="16" />
 
-▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
 
-wip
 
 
