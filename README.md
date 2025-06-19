@@ -1,5 +1,6 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/b34eee79476bcc2c7e174467689072ae/c50747b917f14229-73/s400x600/36f0af8a2d971db12c30f041d165986dc7904125.pnj" width="400">
+  <img src="https://64.media.tumblr.com/dc8f31d65aa5b3516e8aa374ff3936a5/9ac589e31ff8d5d7-16/s1280x1920/377772be16b7d909a9fcd3a2e85d9f93b13b8b0a.pnj" width="700">
 </p>
+
 
 
