@@ -1,7 +1,6 @@
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=24&pause=1000&color=ff69b4&center=true&vCenter=true&width=300&height=50&lines=Welcome!;)
 
-
-![Visitor Count](https://count.getloli.com/get/@Nova?theme=pink)
+  ![Visitor Count](https://count.getloli.com/get/@Nova?theme=pink)
 
 
 <p align="center">
